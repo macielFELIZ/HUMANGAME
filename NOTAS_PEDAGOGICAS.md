@@ -1,0 +1,1 @@
+Protótipo demonstrativo. Revise a adequação etária e curricular das questões antes do uso em sala. Filosofia e Sociologia foram tratadas como temas introdutórios interdisciplinares no Fundamental I; a organização curricular formal varia conforme a rede de ensino. O jogo é recurso complementar, não substitui mediação docente nem avaliação ampla.
